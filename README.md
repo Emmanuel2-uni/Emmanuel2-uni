@@ -1,6 +1,7 @@
  Yo, I’m Emman.
  
- Discord: Emmanuel2#8330           
+ Discord: Emmanuel2#8330   
+ 
  Add me on there for collaborations, help, random chatting, etc.  
 
 <!---
