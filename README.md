@@ -2,7 +2,7 @@
  
  Discord: Emmanuel2#8330   
  
- <a href="https://open.spotify.com/user/6cghhejdsah68mmlw6pml70xc?si=f6acf6836c884fd3">Spotify playlists that I listen to.</a>
+ <a href="https://open.spotify.com/user/6cghhejdsah68mmlw6pml70xc?si=f6acf6836c884fd3">Spotify playlists that I listen to.</a> (Testing HTML hyperlinking)
  
  Add me on there for collaborations, help, random chatting, etc.  
  
